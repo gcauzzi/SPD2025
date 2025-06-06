@@ -2,4 +2,4 @@
 assorted notebooks &amp; other material for the Splinter @SPD2025
 
 
-Here as temporary, until we decide on a permanent place for these things. 
+Here temporarily, until we decide on a permanent place for these things. 
